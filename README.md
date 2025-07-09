@@ -30,5 +30,5 @@ If you're looking for a team player who dives deep into projects and tackles pro
 
 ## 📫 Contact
 
-- **Email**: rachelrosenblum@gmail.com
+- **Email**: ra0527184881@gmail.com
 
